@@ -1,0 +1,2 @@
+# junkfood
+Rejected sticker pack.
